@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GulnazY
 - 👀 I’m a UX/UI designer with a passion for creating user-friendly and visually appealing experiences.
 - 🌱 I’m currently learning new design trends and tools to stay up-to-date in the field.
-- 💼 Check out my design portfolios: [Behance](https://www.behance.net/gulnazyusifova)) [Dribbble](https://dribbble.com/GulnazY)
+- 💼 Check out my design portfolios: [Behance](https://www.behance.net/gulnazyusifova) [Dribbble](https://dribbble.com/GulnazY)
 - 💬 Let's collaborate on design projects or discuss new opportunities!
 - 📫 You can reach me via email at glnzysfv@gmail.com
